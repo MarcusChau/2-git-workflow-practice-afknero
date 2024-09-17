@@ -5,3 +5,5 @@ In the blog post "The Secret Inside One Million Checkboxes," written by Nolen (e
 This story is a reminder of the value of personal projects. The best way to learn is by building something that excites you and gaining skills along the way. The author's project not only became a viral success but also inspired a community of creative users to engage in ways they had never anticipated. For me, it's a reminder to take the leap of faith and pursue my own personal projects &#8212; building things I find interesting, regardless of whether they will succeed or not.
 
 ## Comments
+ 
+I find the article you linked very interesting as well. It's an inadvertent success story where the author achieved an unexpected outcome that is "better" in a sense. For me, it reminded me that no matter how busy life and our jobs can get, don't forget to have hobbies that we truly enjoy. Not every path is pursued with an end goal in mind, because sometimes they can lead to an even "better" outcome. - Andy Liu
